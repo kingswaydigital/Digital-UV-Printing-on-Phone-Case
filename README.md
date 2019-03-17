@@ -1,0 +1,9 @@
+The mobile back cover printing machine is a new generation of <a href="http://www.orinjet.com/products/"/>uv flatbed printer for sale</a> without limitation of any material, can replace silk printing, pad printing, transfer printing. Besides, the phone shell printer makes colored printing, produce higher quality than traditional way without plate and chromatography. Meanwhile, the equipment can print any picture in the computer directly. All the material can be printed out the picture in rich color and vivid effect, which is protected from water, sun block, wear and fading. Therefore, it can totally meet the mass production requirement of all lines, and significantly improve the enterprises market competition ability. 
+
+Application Solutions of UV Digital Smartphone Case Printer (cell phone case printer)
+JSW's F2513G <a href="http://www.orinjet.com/digital-uv-phone-case-printer.html"/>mobile cover photo printing machine</a> is a type of hi-precision UV flatbed printer specially designed for personalized processing enterprises to meet their high accuracy and personalized requirements. Equipped with 2-4 Kyocera KJ4A grey-scale piezoelectric print heads, the F2513G UV phone case printer can print in hi-speed as well as hi-precision in 8 colors 1200*1200 DPI. The draft print speed up to 45㎡/h. which balanced the needs of speed and the output quality. 啊
+
+Targeted Application Field of <a href="http://www.orinjet.com/digital-uv-phone-case-printer.html"/>Mobile Back Cover Photo Printing Machine</a>
+The phone shell printing get a promise future, because its variety of material to choose, such as, phone shell, notebook cover, laptop cover, and so on; and the jelly shell, pudding shell, silicon shell, the mobile power shell, USB cover, and even the panel of home appliances can be print on directly. 
+
+<img src="http://www.orinjet.com/uploads/image/20181108/12/phone-case-printer-1.jpg"/>
